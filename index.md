@@ -1,8 +1,10 @@
 # Welcome to bhamidipati.org
 
-This page will have more details in the following versions. Until then enjoy [this](https://www.google.com). 
+This page will grow as the family grows. Until then enjoy [this](https://www.parents.com/fun/activities/outdoor/weekend-family-activities/). 
 
-* Read
-* Write
-* Have fun
+Goals of life 
+
+* Read and write
+* Listen and speak
+* Always have fun
 * Stay positive
